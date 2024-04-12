@@ -7,4 +7,7 @@ Pool Lennin Salvatierra Arevalo   20190282G\
 Link del video\
 [Click para ver el video](https://drive.google.com/file/d/1Vg61mVkWOvFxv6zivDJEvCqW1BdqqaUb/view?usp=sharing)
 
+Link de la PPT\
+[Click para ver la PPT](https://docs.google.com/presentation/d/1bmjks-rw4B9LHxewRcwaVcKebZFoNuyD/edit?usp=sharing&ouid=106633011391616836915&rtpof=true&sd=true)
+
 Muchas gracias
